@@ -1,0 +1,1 @@
+# STRICT-FULL-PART
